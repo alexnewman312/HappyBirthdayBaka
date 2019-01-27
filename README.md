@@ -8,17 +8,17 @@
 - who knows me better than any other friend.
 - I address "tu" and yet respect.
 - I call "dii", "nee" and "baka".
-- whose the best moral support any day.
-- whose my favorite tubelight.
+- who is the best moral support any day.
+- who is my favorite tubelight.
 - who I fangirl about anime girls to.
 - whose schooling I don't mind.
 - whose future pets I spend time naming.
 - I tolerate despite thinking DC < Marvel, and iPhones < Android. (Weirdo XD)
-- whose taught me bits and pieces of psychology.
+- who taught me bits and pieces of psychology.
 - whose love for Simon Sinek is intolerable, but what other choice do I have.
 - who was my first instagram follower.
 - who made me feel like someone's little brother.
-- whose one of my favorite parts of my life.
+- who is one of my favorite parts of my life.
 - I sibling adore. 
 
 # Happy Birthday Baka!
