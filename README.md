@@ -1,6 +1,6 @@
-:tada: :tada: :tada: :tada: :tada::tada::tada::tada::tada::tada::tada::tada::tada::tada:
+🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉
 
-## You're another year closer to the best version of you. Keep at it! :slightly_smiling_face:
+## You're another year closer to the best version of you. Keep at it! 🙂
 
 ### To the bestie
 
@@ -25,4 +25,6 @@
 
 Thanks for the memories.
 
-The ones in the past, and the ones that'll come in the future.:tada:
+The ones in the past, and the ones that'll come in the future.
+
+🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉🎉
