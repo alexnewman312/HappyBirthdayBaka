@@ -1,37 +1,28 @@
-## Welcome to GitHub Pages
+:tada: :tada: :tada: :tada: :tada::tada::tada::tada::tada::tada::tada::tada::tada::tada:
 
-You can use the [editor on GitHub](https://github.com/alexnewman312/forhina/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+## You're another year closer to the best version of you. Keep at it! :slightly_smiling_face:
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+### To the bestie
 
-### Markdown
+- who always turns my frowns upside down
+- who knows me better than any other friend.
+- I address "tu" and yet respect.
+- I call "dii", "nee" and "baka".
+- whose the best moral support any day.
+- whose my favorite tubelight.
+- who I fangirl about anime girls to.
+- whose schooling I don't mind.
+- whose future pets I spend time naming.
+- I tolerate despite thinking DC < Marvel, and iPhones < Android. (Weirdo XD)
+- whose taught me bits and pieces of psychology.
+- whose love for Simon Sinek is intolerable, but what other choice do I have.
+- who was my first instagram follower.
+- who made me feel like someone's little brother.
+- whose one of my favorite parts of my life.
+- I sibling adore. 
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+# Happy Birthday Baka!
 
-```markdown
-Syntax highlighted code block
+Thanks for the memories.
 
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/alexnewman312/forhina/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+The ones in the past, and the ones that'll come in the future.:tada:
