@@ -4,7 +4,7 @@
 
 ### To the bestie
 
-- who always turns my frowns upside down
+- who always turns my frowns upside down.
 - who knows me better than any other friend.
 - I address "tu" and yet respect.
 - I call "dii", "nee" and "baka".
